@@ -90,7 +90,7 @@ David's work often involves hosting pedagogical projects within higher education
 
 As an art worker, David interrogates cultural and academic participation through phenomena like product-oriented participation, alienated labor, conformity, and mass spectacle. He creates art that challenges the conventions of display, value, and institutional authority. His projects, such as "Follow the Teacher" and "White Shed Gallery," employ humor, irony, and subversion to critique the structures of art and education.
 
-David Lane collaborates with RedJade Yuan, Wu Tun Tun, and others to perform labor-intensive art that reflects the intersection of human effort and algorithmic systems. These performances often involve physical endurance and the tension between autonomy and compliance, emphasizing the act of following instructions as a form of creation and transformation.  
+David Lane collaborates with RedJade Yuan, and Greg Kreisman to perform labor-intensive art that reflects the intersection of human effort and algorithmic systems. These performances often involve physical endurance and the tension between autonomy and compliance, emphasizing the act of following instructions as a form of creation and transformation.  
 
 Commands for Art Workers:
 - “Stack the bricks into a tower, then knock it down. Destruction is creation.”
